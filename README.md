@@ -1,0 +1,1 @@
+# Pathologic-Classic-HD-Turkce-Yama-nexus
